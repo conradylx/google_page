@@ -1,0 +1,1 @@
+This page is about creating full responsible google homepage.
